@@ -63,6 +63,8 @@
 <br>特点:颜值可爱好看,反差感强,活好</br>
 
 ------------------------------------------------------------------------------------------------------------------------
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_deepnude%20(1).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_deepnude%20(2).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_1.jpg />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_2.jpg />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_6.jpg />
@@ -79,3 +81,4 @@
 <br>特点:颜值一般,奶大,性格内敛,反差感强,经验少,插不动,多捅两下就好了</br>
 
 ------------------------------------------------------------------------------------------------------------------------
+
