@@ -61,8 +61,13 @@
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude%20(5).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude(21).jpg />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude(22).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_swapface(13).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_swapface(18).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_swapface(41).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude(30).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude(33).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_swapface(50).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_swapface(19).png />
 <br>爱称:大婷
 <br>本名:顾燕婷
 <br>出生年月:1993.2
@@ -121,6 +126,7 @@
 <br>特点:颜值一般,奶大,性格内敛,反差感强,经验少,插不动,多捅两下就好了</br>
 
 ------------------------------------------------------------------------------------------------------------------------
+
 
 
 
