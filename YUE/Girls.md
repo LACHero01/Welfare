@@ -113,6 +113,10 @@
 <br>特点:颜值可爱好看,反差感强,活好</br>
 
 ------------------------------------------------------------------------------------------------------------------------
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(3).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(4).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(5).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(6).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate.png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle2_AI_generate.png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_deepnude%20(1).png />
@@ -131,6 +135,7 @@
 <br>特点:颜值一般,奶大,性格内敛,反差感强,经验少,插不动,多捅两下就好了</br>
 
 ------------------------------------------------------------------------------------------------------------------------
+
 
 
 
