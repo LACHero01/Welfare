@@ -64,6 +64,8 @@
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_generate5.png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_generate(6).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_generate(7).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_generate(8).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_generate(9).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude(4).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude%20(5).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/mt/mt_AI_deepnude(21).jpg />
@@ -123,6 +125,7 @@
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(8).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(9).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(10).png />
+<img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate(11).png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_generate.png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle2_AI_generate.png />
 <img src=https://github.com/LACHero01/Welfare/blob/main/Images/twinkle/twinkle_AI_deepnude%20(1).png />
@@ -141,6 +144,7 @@
 <br>特点:颜值一般,奶大,性格内敛,反差感强,经验少,插不动,多捅两下就好了</br>
 
 ------------------------------------------------------------------------------------------------------------------------
+
 
 
 
